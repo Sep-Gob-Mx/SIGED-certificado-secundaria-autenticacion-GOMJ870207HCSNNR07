@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-GOMJ870207HCSNNR07
+GOMJ870207HCSNNR07
